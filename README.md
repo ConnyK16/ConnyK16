@@ -1,4 +1,4 @@
-Hi, I’m Connor Kaminska, and I'm a senior studying aerospace engineering at @mit. 
+Hi, I’m Connor Kaminska, and I'm a senior studying aerospace engineering at MIT. 
 
 www.linkedin.com/in/connor-kaminska
 
